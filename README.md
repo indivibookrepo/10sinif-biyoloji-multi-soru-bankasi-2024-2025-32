@@ -1,0 +1,1 @@
+# 10sinif-biyoloji-multi-soru-bankasi-2024-2025-32
